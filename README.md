@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vikt0r11a
+- 👋 Hi, I’m @Vikt0r11a !
 - 👀 I’m interested in reading books, learning foreign languages, ​​
 hiking, writing stories, creating things
 - 🌱 I’m currently learning a philology 
